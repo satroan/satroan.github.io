@@ -1,5 +1,5 @@
 # Shahrukh Tohid Rao @code_satroan
-
+[Blog](www.blog.satroan.com)
 ##                                          Writer.       Programmer.     Entrepreneur.
                                   wondering what you're doing here..
 
